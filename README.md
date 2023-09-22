@@ -4,7 +4,7 @@ Saya adalah siswa sekolah kejuruan dengan minat besar untuk berkarir dibidang Mu
 
 ## Education:
 
-#### 1. [SMKS Wira Informatika Global](https://www.smkwirainformatikaglobal.sch.id/) Jurusan Multimedia Dari 2021-Sekarang
+####  [SMKS Wira Informatika Global](https://www.smkwirainformatikaglobal.sch.id/) Jurusan Multimedia Dari 2021-Sekarang
 
 ### Languages and Tools:
 
