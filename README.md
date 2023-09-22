@@ -1,6 +1,6 @@
-# Hi there, I'm Marwah - aka https://instagram.com/mrrwh_assdh?igshid=MzNlNGNkZWQ4Mg==
+# Hi there, I'm Marwah - aka (https://instagram.com/mrrwh_assdh?igshid=MzNlNGNkZWQ4Mg==)
 ## About me:
-aya adalah siswa sekolah kejuruan dengan minat besar untuk berkarir dibidang MultiMedia,
+Saya adalah siswa sekolah kejuruan dengan minat besar untuk berkarir dibidang MultiMedia,
 
 ## Education:
 
